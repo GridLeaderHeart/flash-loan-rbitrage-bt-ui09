@@ -1,4 +1,4 @@
-# 
+# premium bot sniper MEV executor é o melhor bot sniper MEV executor com varredura de degen coins e otimização de gas. Seguro, confiável e otimizado para estratégias MEV, sniper e
 
 
 
